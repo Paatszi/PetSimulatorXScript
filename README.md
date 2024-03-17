@@ -1,2 +1,1 @@
-# PetSimulatorXScript
-PetSimulatorXScript
+TRADE SCAM SCRIPT
